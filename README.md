@@ -1,1 +1,1 @@
-file:///Users/cecilecostomiris/Desktop/THP/BetterMotherFuckingWebsite/index.html
+https://cecileparis.github.io/BetterMotherFuckingWebsite/
